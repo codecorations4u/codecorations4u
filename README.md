@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @codecorations4u
+- 👋 Hi, I’m @codemorsing
 - 👀 I’m interested in Jesus, literature and chess.
 - 🌱 I’m currently learning how to code, lol.
 
